@@ -1,1 +1,1 @@
-# AI-Assisted-Coding
+# AI-Assi-Coding
